@@ -1,0 +1,1 @@
+stove , lighter , water , black Rice - 1 cup and vessel
